@@ -1,0 +1,1 @@
+Skrawki które uda³o mi siê znaleŸæ na komputerze
